@@ -1,1 +1,0 @@
-# synapsil-legal
